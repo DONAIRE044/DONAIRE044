@@ -1,2 +1,2 @@
-## bom dia eu sou o Luiz mais conhecido como Donaire
+## bom dia Donaire
 16 anos
